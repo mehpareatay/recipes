@@ -1,7 +1,8 @@
 # Guacamole
 ## Ingredients 
-* avocado
-* lime
-* salti
+* 3 avocados
+* 1/4 cup cilantro
+* juice of 1 lime
+* 1/2 tsp salt
 ## Instructions
 
